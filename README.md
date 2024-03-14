@@ -1,6 +1,6 @@
-# No Code
+# yes Code
 
-No code is the best way to write secure and reliable applications. Write nothing; deploy nowhere.
+No cofsdfwesfrsfuasdhjgshjdgfckj,dmjbskzldhdfj dfjhbsdajhfbsdkjhfbsdkjfhbsdknfbaskdjfasdjhbfasdjhfbasdjhfbasdjhbdkajfhbasdjkhfbsdjkhfb jksdhfbasdjkhfb kasdjhfbasdjk fbasdkjhf basdjkfhbdk dbfbsdjkhasdbfhyughjbersfyuhjvbesfujdfeyuhjbasdhjkbdsfbnmsd dfssdf yuighjsdf yughjby yughjyuogyuiog de is the best way to write secure and reliable applications. Write nothing; deploy nowhere.
 
 ## Getting Started
 
